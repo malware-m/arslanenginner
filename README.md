@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **arslanzulfiqar04@gmail.com**
 
-- 📄 Know more about me [https://www.linkedin.com/in/arslan-zulfiqar-335230280/](https://www.linkedin.com/in/arslan-zulfiqar-335230280/)
+- 📄 Know more about me [https://www.linkedin.com/in/arslan-zulfiqar-335230280/](arslan-zulfiqar-335230280)
 
 - ⚡ Fun fact **I’m always on the lookout for people with a growth mindset who are eager to learn and evolve.**
 
